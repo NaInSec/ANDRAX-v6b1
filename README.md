@@ -11,4 +11,14 @@ Shoot yourself with a .50 BMG Barrett.
 
 ###### ***Link Download Official :***
 
-[ANDRAX-V6001](https://teraboxapp.com/s/1aQqC9Dt1dvVKMjX_4ySW0A)
+```
+https://mega.nz/file/PuhXgBqB#1meyEF_eDgFFlHvw2pjtJsZPd8nvFNIbuJwILPoMlk0
+
+https://mega.nz/file/OyIgxRqK#7Ifn70-qOCAM14q15RCyAJnV0f0p-4Gc2NKtst3AJOs
+
+https://mega.nz/file/6qYSQQTR#J3-DcrCUDW28oxbNdpkD3ajoYpd_DAi45ur1HIYVwpc
+
+https://mega.nz/file/mrZiRYxY#6gqlHjQ-qwzO7RvJ3XRo3ZmYfXT_y7AQUAHCpxoCcCw
+
+https://mega.nz/file/ymYnBBoL#eFdaFkH4lZ0k5KB68nP-s-y921scpXGXgh9AUcz0nZw
+```
